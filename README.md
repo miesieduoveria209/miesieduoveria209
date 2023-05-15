@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Miesieduo Veria
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning HTML,CSS,JAVASCRIPT
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me 
+- WA-+2349031474209
+- Instagram-Miesieduo Veria
